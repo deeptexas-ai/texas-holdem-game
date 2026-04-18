@@ -44,7 +44,7 @@
 ![06-9人桌](https://github.com/user-attachments/assets/437e971e-5539-4df5-88ec-e031b033aad8)
 ![03](https://github.com/user-attachments/assets/935dd45e-a186-4835-a86f-77a2d8abcfa8)
 
-> 真实截图请联系获取演示包。
+> 如需提前获取，请联系下方Telegram@xuzongbin001
 
 ## 🚀 快速开始（三种方式）
 
