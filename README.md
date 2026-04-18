@@ -114,8 +114,3 @@ GNU Affero General Public License v3.0
 ✅ 全平台支持  
 
 
-![011](https://github.com/user-attachments/assets/987fdd0a-48c9-49bb-b936-420106e5dada)
-![08](https://github.com/user-attachments/assets/50774f4c-f43b-4491-aa36-0c91d65a70b5)
-![07-亮手牌](https://github.com/user-attachments/assets/65fe4e23-0fa3-4575-b4dd-b273e05495e3)
-![06-9人桌](https://github.com/user-attachments/assets/437e971e-5539-4df5-88ec-e031b033aad8)
-![03](https://github.com/user-attachments/assets/935dd45e-a186-4835-a86f-77a2d8abcfa8)
